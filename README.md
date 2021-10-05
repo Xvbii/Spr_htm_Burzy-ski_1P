@@ -1,1 +1,1 @@
-# Spr_htm_Burzy-ski_1P
+# Spr_htm_Burzynski_1P
